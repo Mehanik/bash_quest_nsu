@@ -1,0 +1,1 @@
+# bash_quest_nsu_Konstantinov
